@@ -1,2 +1,2 @@
 # Ripplelovevera
-He very love her.
+He very loves her.
